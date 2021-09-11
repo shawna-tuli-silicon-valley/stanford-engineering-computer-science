@@ -1,4 +1,4 @@
-# Stanford Engineering Computer Science
+# Stanford Engineering Computer Science ❤️🌲
 
 Studying at Stanford was the beginning of my love for tech.
 
