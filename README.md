@@ -1,6 +1,6 @@
 # Stanford Engineering Computer Science ❤️🌲
 
-Studying at Stanford University was the beginning of my love for tech! I have a Certificate in Computer Science from the Stanford University School of Engineering and a High School Diploma from Los Gatos High School. 
+Studying at Stanford University was the beginning of my love for tech! I have a Certificate in Computer Science from Stanford University School of Engineering and a High School Diploma from Los Gatos High School. 
 
 ![IMG_4006](https://user-images.githubusercontent.com/19508013/132960938-1759a959-8ecb-41a1-8b40-d108d32de35c.jpeg)
 
