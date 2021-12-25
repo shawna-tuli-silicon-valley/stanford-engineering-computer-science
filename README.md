@@ -9,6 +9,7 @@ Studying at Stanford University was the beginning of my love for tech! I have a 
 ![IMG_4006](https://user-images.githubusercontent.com/19508013/132960938-1759a959-8ecb-41a1-8b40-d108d32de35c.jpeg)
 
 ![IMG_4002](https://user-images.githubusercontent.com/19508013/135185815-5a02b3fb-433f-4c0a-89c7-e4f676b5ec56.jpeg)
+_________________________________________________________________________________________________________________________________
 
 ![IMG_0790](https://user-images.githubusercontent.com/19508013/135185829-895b0d3d-f5a2-402e-a039-23947bb1e26a.jpeg)
 
