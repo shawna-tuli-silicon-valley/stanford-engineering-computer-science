@@ -1,12 +1,10 @@
-# Stanford Engineering Computer Science ❤💻
+![CS-Logo-horizontal](https://user-images.githubusercontent.com/19508013/165649795-7d7c9935-5159-41c8-b5cb-b4a15cfa914f.png)
 
 Studying at Stanford University was the beginning of my love for tech! I have a Certificate in Computer Science from Stanford University School of Engineering and a High School Diploma from Los Gatos High School. 
 
 ∙ [2016 Los Gatos High School Senior Destination Map](https://elgatonews.com/wp-content/uploads/2016/05/22-23centermap.pdf)
 
 ∙ [Shawna Tuli "Los Gatos Startup Debuts Interactive Broadcasting App" in SiliconValley.com Mention](https://www.siliconvalley.com/2016/03/23/los-gatos-startup-debuts-interactive-broadcasting-app/)
-
-![CS-Logo-horizontal](https://user-images.githubusercontent.com/19508013/165649795-7d7c9935-5159-41c8-b5cb-b4a15cfa914f.png)
 
 ![IMG_4006](https://user-images.githubusercontent.com/19508013/132960938-1759a959-8ecb-41a1-8b40-d108d32de35c.jpeg)
 
