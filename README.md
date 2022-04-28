@@ -1,5 +1,7 @@
 ![CS-Logo-horizontal](https://user-images.githubusercontent.com/19508013/165649795-7d7c9935-5159-41c8-b5cb-b4a15cfa914f.png)
 
+![LG](https://user-images.githubusercontent.com/19508013/165770219-727bb1ed-6bb2-4e92-b804-643d83a4f04c.jpeg)
+
 Studying at Stanford University was the beginning of my love for tech! I have a Certificate in Computer Science from Stanford University School of Engineering and a High School Diploma from Los Gatos High School. 
 
 ∙ [2016 Los Gatos High School Senior Destination Map](https://elgatonews.com/wp-content/uploads/2016/05/22-23centermap.pdf)
