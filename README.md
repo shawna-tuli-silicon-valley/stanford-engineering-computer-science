@@ -17,5 +17,3 @@ ________________________________________________________________________________
 ![IMG_1466-1](https://user-images.githubusercontent.com/19508013/135185838-d954b817-4589-4142-86d3-2b4e110efc39.jpeg)
 
 ![Screenshot_2015-05-18-19-02-33](https://user-images.githubusercontent.com/19508013/135185847-f367ba1e-efe7-4c8a-9453-32dc6fafc076.jpeg)
-
-![LG](https://user-images.githubusercontent.com/19508013/165770219-727bb1ed-6bb2-4e92-b804-643d83a4f04c.jpeg)
