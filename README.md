@@ -4,7 +4,7 @@
 
 ∙ [Shawna Tuli 2016 Los Gatos High School Senior Destination Map](https://elgatonews.com/wp-content/uploads/2016/05/22-23centermap.pdf)
 
-∙ [Shawna Tuli "Los Gatos Startup Debuts Interactive Broadcasting App" in SiliconValley.com Mention](https://www.siliconvalley.com/2016/03/23/los-gatos-startup-debuts-interactive-broadcasting-app/)
+∙ [Shawna Tuli 2016 "Los Gatos Startup Debuts Interactive Broadcasting App" in SiliconValley.com Mention](https://www.siliconvalley.com/2016/03/23/los-gatos-startup-debuts-interactive-broadcasting-app/)
 
 ![IMG_4006](https://user-images.githubusercontent.com/19508013/132960938-1759a959-8ecb-41a1-8b40-d108d32de35c.jpeg)
 
