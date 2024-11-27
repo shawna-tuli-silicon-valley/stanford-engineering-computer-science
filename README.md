@@ -2,7 +2,7 @@
 ![Stanford-Symbol](https://user-images.githubusercontent.com/19508013/165827961-7ebccd87-8a99-44e8-95de-4c8e8eafe548.png)
 ![CS-Logo-horizontal](https://user-images.githubusercontent.com/19508013/165649795-7d7c9935-5159-41c8-b5cb-b4a15cfa914f.png)
 
-∙ [Shawna Tuli 2016 Los Gatos High School Senior Destination Map](https://elgatonews.com/wp-content/uploads/2016/05/22-23centermap.pdf)
+* [Shawna Tuli 2016 Los Gatos High School Senior Destination Map](https://elgatonews.com/wp-content/uploads/2016/05/22-23centermap.pdf)
 
 ![IMG_4006](https://user-images.githubusercontent.com/19508013/132960938-1759a959-8ecb-41a1-8b40-d108d32de35c.jpeg)
 
